@@ -22,10 +22,11 @@
 |    [XVIDEO](https://www.xvideos.net/app/)     | [Android](http://cds.b9j8y6c4.hwcdn.net/videos/android-app/xvideos-STABLE-0.44.apk) |                              无                              |
 | [Pornhup](http://www.pornhup.com/fun/android) | [Android（需翻墙）](https://api.pronstore.com/sites/1/applications/1/versions/curren) |                                                              |
 |                    青青草                     | [Android](https://www.qqcappmk01.com/?app_key=hmxgte&code=95REVTVq) | [IOS](https://www.qqcappmk01.com/?app_key=hmxgte&code=95REVTVq) |
-|       [蜜桃APP](https://www.mt001.cc/)        |     [Android](https://www.chinaanti-riot.com/mt1510.apk)     | 无 |
+|       [蜜桃APP](https://www.mt001.cc/)        |     [Android](https://www.chinaanti-riot.com/mt1510.apk)     |                              无                              |
 |         [香蕉视频](https://www.5.app)         |         [Android](https://app.xllwpq.com/930-xj.apk)         |         [IOS](https://ios.xiudongli.com/?knowledge)          |
 |                  精品色中色                   |    [Android](http://app.ks453.com/f2d/sexinsex_sign2.apk)    |                              无                              |
 |                     XNCC                      | [Android](http://cds.b9j8y6c4.hwcdn.net/videos/android-app/xnxx-STABLE-0.44.apk) |                              无                              |
+|         [名优馆](https://mygwz.com/)          |        [Android](https://myg7.app/?channelCode=cmdh)         |                              无                              |
 
 
 
