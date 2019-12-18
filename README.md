@@ -28,7 +28,9 @@
 |                     XNCC                      | [Android](http://cds.b9j8y6c4.hwcdn.net/videos/android-app/xnxx-STABLE-0.44.apk) |                              无                              |
 |         [名优馆](https://mygwz.com/)          |        [Android](https://myg7.app/?channelCode=cmdh)         |                              无                              |
 
+#### 影视VIP-APP（不完全汇总）
 
+------
 
 |                       名称                       |                            安卓版                            |                    IOS版                    |
 | :----------------------------------------------: | :----------------------------------------------------------: | :-----------------------------------------: |
