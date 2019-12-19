@@ -34,7 +34,7 @@
 
 |                       名称                       |                            安卓版                            |                    IOS版                    |
 | :----------------------------------------------: | :----------------------------------------------------------: | :-----------------------------------------: |
-| [南瓜影视](https://ngmov.me/?channelCode=ngyg35) | [点击下载Android](http://storage.lxgzb.com/donggua/channel-ayo1id-11-ngyg35.apk) | [IOS](https://ngmov.me/?channelCode=ngyg35) |
+| [南瓜影视](https://ngmov.me/?channelCode=ngyg35) | [点击下载Android](http://storage.lxgzb.com/donggua/channel-ayo1id-11-ngyg35.apk) | [点击下载IOS](https://ngmov.me/?channelCode=ngyg35) |
 |          [小小影视](https://xiao1.app/)          |     [点击下载Android](https://app.dufuhotel.com/9app0815-1.apk)      |                     无                      |
 
 
